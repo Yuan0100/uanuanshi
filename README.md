@@ -4,7 +4,7 @@ UI/UX designer | Front-end developer | Creator (on going)
 
 這裡是我用來搜集零散想法的地方。
 
-較完整的文章會放在 Blog: [3point14.info](https://3point14.info)
+較完整的文章會放在 Blog: [uanuanshi.com](https://uanuanshi.com)
 
 ---
 
